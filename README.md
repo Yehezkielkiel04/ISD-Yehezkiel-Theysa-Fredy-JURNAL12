@@ -1,0 +1,1 @@
+# ISD-Yehezkiel-Theysa-Fredy-JURNAL12
